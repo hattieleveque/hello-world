@@ -1,2 +1,3 @@
 # hello-world
 Figuring it out as I go...
+Forever bitten by the travel bug, likes pizza and sushi, skier for life, currently living on a lake. 
